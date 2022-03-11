@@ -21,7 +21,6 @@ Apaixonado por tecnologia, educação e livros.
 
 ### Contatos:
 
-- [Email](jeremiascap@gmail.com) </br>
+- jeremiascap@gmail.com </br>
 - [whatsApp](https://wa.me/11958431849)</br>
-- [Teams](jeremias.bezerra@aluno.unip.br)</br>
 
